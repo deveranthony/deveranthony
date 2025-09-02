@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **deveranthony5@gmail.com**
 
-- ⚡ Fun fact **I Love Viper**
+- ⚡ Fun fact **I Love Onora**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
